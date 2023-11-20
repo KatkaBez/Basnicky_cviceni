@@ -1,7 +1,7 @@
 # Brambora
 
 Kutálí se ze dvora
-takhle velká brambora.
+takhle velká BATÁTA.
 
 Neviděla, neslyšela,
 spadla na ni závora.
